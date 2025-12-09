@@ -69,3 +69,15 @@ Compact steps
 Very close chest connection
 
 Ideal for crowded dance floors
+
+💞 What Makes Tango Unique?
+
+Connection: The silent communication between partners is central.
+
+Improvisation: Tango isn’t choreographed; every step is created in the moment.
+
+Expressiveness: Dancers interpret the music with emotional nuance.
+
+Culture: Tango is tied to Argentine social traditions, music, poetry, and gatherings.
+
+
