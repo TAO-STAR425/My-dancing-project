@@ -101,7 +101,3 @@ Ganchos (hooking legs)
 
 Boleos (flicks)
 
-Sacadas (displacements)
-
-Voleos
-
