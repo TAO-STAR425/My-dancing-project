@@ -44,3 +44,17 @@ Strong musical interpretation & connection
 
 This is the style danced socially at milongas.
 
+2. Ballroom Tango
+
+Standardized for competitions and ballroom dance.
+Key traits:
+
+More dramatic and staccato
+
+Sharp head movements and lines
+
+A more rigid frame than Argentine tango
+
+Often danced to different, more theatrical music
+
+There are two ballroom variations: International and American.
