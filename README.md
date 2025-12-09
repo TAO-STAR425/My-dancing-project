@@ -57,6 +57,15 @@ A more rigid frame than Argentine tango
 
 Often danced to different, more theatrical music
 
-
-
 There are two ballroom variations: International and American.
+
+4. Milonguero Style
+
+A close-embrace social form.
+Key traits:
+
+Compact steps
+
+Very close chest connection
+
+Ideal for crowded dance floors
