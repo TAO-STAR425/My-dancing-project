@@ -105,6 +105,3 @@ Sacadas (displacements)
 
 Voleos
 
-Barridas (sweeps)
-
-Cabeceo: traditional way of inviting someone to dance with eye contact and a nod
