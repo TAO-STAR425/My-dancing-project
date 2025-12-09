@@ -80,4 +80,13 @@ Expressiveness: Dancers interpret the music with emotional nuance.
 
 Culture: Tango is tied to Argentine social traditions, music, poetry, and gatherings.
 
+🪩 Tango Social Culture (Milonga)
 
+A milonga is a social tango dance event.
+There are also:
+
+Tandas: sets of songs danced with the same partner
+
+Cortinas: short non-tango breaks between tandas
+
+Cabeceo: traditional way of inviting someone to dance with eye contact and a nod
