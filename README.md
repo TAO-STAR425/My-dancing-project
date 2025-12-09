@@ -89,4 +89,22 @@ Tandas: sets of songs danced with the same partner
 
 Cortinas: short non-tango breaks between tandas
 
+👣 Typical Tango Steps
+
+Walks (caminata)
+
+Ochos (forward/backward rotations)
+
+Giro (turns)
+
+Ganchos (hooking legs)
+
+Boleos (flicks)
+
+Sacadas (displacements)
+
+Voleos
+
+Barridas (sweeps)
+
 Cabeceo: traditional way of inviting someone to dance with eye contact and a nod
