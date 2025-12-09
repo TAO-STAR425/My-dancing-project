@@ -27,3 +27,20 @@ Based on walking steps and strong rhythms
 Sometimes smooth and melancholic, sometimes sharp and playful
 
 Famous composers/performers: Ástor Piazzolla, Carlos Gardel, Osvaldo Pugliese, Juan D’Arienzo.
+
+🕺💃 Major Styles of Tango
+1. Argentine Tango
+
+The original form — deeply expressive and improvisational.
+Key traits:
+
+Close embrace (but adjustable)
+
+Subtle, intimate lead-and-follow communication
+
+Walking, pivots, ochos, ganchos, boleos, sacadas
+
+Strong musical interpretation & connection
+
+This is the style danced socially at milongas.
+
