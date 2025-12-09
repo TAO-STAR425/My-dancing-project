@@ -97,7 +97,4 @@ Ochos (forward/backward rotations)
 
 Giro (turns)
 
-Ganchos (hooking legs)
-
-Boleos (flicks)
 
