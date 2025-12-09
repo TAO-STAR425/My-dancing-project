@@ -104,7 +104,6 @@ Cortinas: short non-tango breaks between tandas
 
 👣 Typical Tango Steps
 
-Walks (caminata)
 
 
 
