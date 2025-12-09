@@ -106,7 +106,7 @@ Cortinas: short non-tango breaks between tandas
 
 Walks (caminata)
 
-Ochos (forward/backward rotations)
+
 
 Giro (turns)
 
