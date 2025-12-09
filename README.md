@@ -43,6 +43,8 @@ Walking, pivots, ochos, ganchos, boleos, sacadas
 Strong musical interpretation & connection
 
 This is the style danced socially at milongas.
+There are two ballroom variations: International and American.
+
 
 2. Ballroom Tango
 
@@ -57,7 +59,18 @@ A more rigid frame than Argentine tango
 
 Often danced to different, more theatrical music
 
-There are two ballroom variations: International and American.
+3. Tango Nuevo
+
+A contemporary, experimental evolution.
+Key traits:
+
+Open embrace with more elasticity
+
+Improvisation and exploration
+
+Influence from Piazzolla’s modern music
+
+Popularized by dancers like Gustavo Naveira and Chicho Frúmboli
 
 4. Milonguero Style
 
